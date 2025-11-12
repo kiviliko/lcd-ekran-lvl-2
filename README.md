@@ -1,0 +1,2 @@
+# lcd-ekran-lvl-2
+LCD EKRAN AMA GELİSMİS SUPER DUPER ULTRRAAA
